@@ -1,2 +1,3 @@
 # Arena
-My work tell how i think.
+I took this name because i m preparing and developing myself.
+
